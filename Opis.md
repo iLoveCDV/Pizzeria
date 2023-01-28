@@ -1,0 +1,3 @@
+Pizzeria oferuje szeroki wybór tradycyjnych włoskich pizz. Wszystkie nasze pizze są przygotowywane z najwyższej jakości składników, w tym świeżych warzyw, włoskich serów i mięsa. Oferujemy również opcje wegetariańskie i dla osób, które lubią ostre potrawy. W menu znajdą Państwo klasyczne pizze, takie jak Margherita i Pepperoni, a także bardziej wyrafinowane opcje, jak Seafood czy Quattro Formaggi. Nie zapomnieliśmy również o fanach pizzy zamkniętej, którzy mogą spróbować naszej wyjątkowej Calzone.
+
+Nasza pizzeria jest rodzinna, przyjazna i oferuje miłą atmosferę, w której można delektować się smakiem włoskiej kuchni. Oferujemy również dostawy do domu i na miejscu można zamówić pizze na wynos. Zapraszamy do naszej pizzerii, by spróbować naszych wyjątkowych pizz!
